@@ -1,3 +1,3 @@
-# Sobre
+# About Me
 
-Um apreciador de tecnologia desde sempre, sendo filho de um técnico, fui criado em contado com computadores desde cedo, nunca parei de aprender e estudar sobre tecnologia, sendo assim um estudioso perpétuo do assunto, todo dia conheço algo novo. Fui técnico de gravação sonora por 5 anos, aonde desenvolvi a capacidade de trabalhar e executar o melhor resultado possível em conjunto com os mais diversos tipos de pessoas.
+I have always been a technology enthusiast, being the son of a technician, I was raised in contact with computers from an early age, I never stopped learning and studying about technology, thus being a perpetual student of the subject, every day I learn something new. I was a sound recording technician for 5 years, where I developed the ability to work and perform the best possible result together with the most diverse types of people.
